@@ -1,6 +1,6 @@
 <p align="center"> Hi, so you're probs reading this from pony.town! :) i don't have much to say on here, but i wanna give a wee lil bit more on me for those curious. 
 
-my name is WYNTER, though others may call me Koy, Pip, Mike, or honestly the name of any pony i'm playing as with the tag "SYS" in the name.
+my name is WYNTER, though others may call me Koy, Pip, Mike, Craig or honestly the name of any pony i'm playing as with the tag "SYS" in the name.
 
 ^ the ponies with the "SYS" tag are typically the current fronter, or whoever else is in co-con, talking/typing, etc.
 
@@ -15,7 +15,7 @@ beside all that, i've been getting into dandy's world as of recent for the pure 
 
 
 my DNI is very short and simplistic, otherwise i don't care for what you do in your freetime or like as an interest/hobby/whatever. 
-i am an adult as i've stated, and honestly don't have time to argue over silly fandom business anymore, unless it's honest to god for love of the game on the 18+ servers...i enjoy a bit of light ragebaiting from time to time all in good fun. i never do it with the intention to hate or harass. we are all people, after all.
+i am an adult as i've stated, and honestly don't have time to argue over silly fandom business anymore, unless it's honest to god for love of the game on the 18+ servers...i enjoy a bit of light ragebaiting from time to time, though all in good fun. i never do it with the intention to hate or harass. we are all people, after all.
 
 anyway...do not interact if you are...
 
